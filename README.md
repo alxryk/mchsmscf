@@ -1,1 +1,1 @@
-# mchsmscf.github.io
+# mchsmscf
